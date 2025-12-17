@@ -44,4 +44,4 @@ We operate in regulated workflows where trust must be provable:
 
 ---
 
-© Vasco Tax Free. All rights reserved.
+2025 © Vasco Tax Free. All rights reserved.
